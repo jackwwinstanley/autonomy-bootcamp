@@ -1,0 +1,3 @@
+Jack Winstanley
+jwinstan@uwaterloo.ca
+jackwwinstanley
